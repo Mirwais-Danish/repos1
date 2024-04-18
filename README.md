@@ -1,2 +1,2 @@
 # repos1
-Author - Mirwais Danish
+Author - Mirwais Danish Afghan
